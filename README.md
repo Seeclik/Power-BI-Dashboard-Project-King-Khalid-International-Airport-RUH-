@@ -26,4 +26,4 @@ The analysis successfully addressed critical business questions and provided the
 
 ### 📧 Contact
 Created by **[Khalid Alammari]** - Connect with me on [Linkedin](https://www.linkedin.com/in/khalid-alammari-/)
- or (Email)(Khalid.A.Alammari@gmail.com)
+ or [Email](Khalid.A.Alammari@gmail.com)
